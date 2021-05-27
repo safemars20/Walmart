@@ -2,4 +2,4 @@
 
 Future Payment Method of Grocery 🚀
 
-https://walmartcard.space
+https://walmartcoin.ca
